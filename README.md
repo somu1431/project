@@ -41,7 +41,7 @@ Quick Learner
 
 LinkedIn: linkedin.com/in/soma-sekhar-m
 
-Email: somasekhar57@gmail.com
+Email: https://www.linkedin.com/in/mandasomasekhar
 
 Portfolio: https://codebasics.io/portfolio/MANDA-SOMA-SEKHAR
 
